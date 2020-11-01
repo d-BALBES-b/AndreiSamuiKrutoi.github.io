@@ -1,2 +1,2 @@
-# AndreiSamuiKrutoi.github.io
+# AndreiKrutoi.github.io
 Этот сайт самого крутого андрея!
